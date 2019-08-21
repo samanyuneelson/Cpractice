@@ -1,3 +1,0 @@
-# Cpractice
-
-exploring!!
